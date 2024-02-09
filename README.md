@@ -1,3 +1,11 @@
 # Dummy
-![image](https://github.com/Boahan/Dummy/assets/111555189/12bafadf-1dd6-44b8-b733-ea140769d815)
+
+![image](https://github.com/Boahan/Dummy/assets/111555189/6cf551c1-bfef-442f-aaf2-a3601c358dbc)
+
+
+![image](https://github.com/Boahan/Dummy/assets/111555189/38f0c5c2-3c82-46a6-98da-583decd1828a)
+
+
+![Graphic_Era_Hill_University_Logo](https://github.com/Boahan/Dummy/assets/111555189/11a78839-9d26-4c7f-9585-b7136460dffe)
+
 
